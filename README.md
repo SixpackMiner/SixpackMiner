@@ -19,7 +19,7 @@ Sixpack Miner is created during the crypto-winter crisis. Instead of electricity
 
 ⚡ Last but not least, you will be able to profitably sell your active energy to us. Don't waste time; unlock yourself, warm up then click here to join Sixpack Miner's [athletes grant program](https://sixpackminer.io/metamap/).
 
-📫 Before to continue make sure to see this 5 minutes [video](https://youtu.be/WvQQGc4Z5eQ) about the Sixpack Miner ecosystem. Also, make sure to follow us on [social media](https://linktr.ee/sixpack_miner).
+📫 Before to continue make sure to watch this 5 minutes [video](https://youtu.be/WvQQGc4Z5eQ) about the Sixpack Miner ecosystem. Also, make sure to follow us on [social media](https://linktr.ee/sixpack_miner).
 
 💬 To learn more, read our [white paper](https://sixpack-miner.gitbook.io/sixpack-whitepaper/).
 
